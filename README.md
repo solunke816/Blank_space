@@ -1,5 +1,3 @@
 https://drive.google.com/file/d/1C3Va6VKYGc1RvttJpU_FLa-VdfLlC_mB/view
 
-
-preranapatil0007@gmail.com
-id 16594
+https://drive.google.com/drive/folders/1EsCsFgkb80ohnUom6ZEgKACInQrlryxv
